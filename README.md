@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning French and PCs
 - 💞️ I’m looking to collaborate on Windows
 - 📫 How to reach me :
-- 💌 Outlook : aliiraqnin@outlook.com
-- 💌 Gmail : www.a.cool412@gmail.com
-- 📱 Telegram : @AliCool412
+ 💌 Outlook : aliiraqnin@outlook.com
+ 💌 Gmail : www.a.cool412@gmail.com
+ 📱 Telegram : @AliCool412
 - 😄 Pronouns : he/him
 - ⚡ Fun facts : I Speak Arabic , English , and a bit of French , I Can Read Backwards and Upside Down .
 
